@@ -1,1 +1,1 @@
-# Influencer_growthai_privacy
+# Influencer_growthAI_privacy
